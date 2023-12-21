@@ -1,5 +1,12 @@
-# fortnite-external-source
+Fortnite Updated cheat for latest patch chapter 4
 
-Join https://discord.gg/phoenixcheats to get the sln and project files
+this source has been used for several p2cs
 
-https://cdn.discordapp.com/attachments/1177964951382536202/1187233829140844594/image.png < picture of cheet in lobby
+first updated n publicated src in chapter 4
+
+Have fun pasting
+
+JOIN MY SERVER FOR UPDATES ELSE IT WILL GET OUTDATED FOR THE NEXT UPDATE ! 
+ 
+https://discord.gg/pastingschool
+
