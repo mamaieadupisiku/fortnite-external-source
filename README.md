@@ -4,7 +4,7 @@ this source has been used for several p2cs
 
 Have fun pasting
 
-JOIN MY SERVER FOR UPDATES ELSE IT WILL GET OUTDATED FOR THE NEXT UPDATE ! 
+JOIN MY SERVER FOR SLN AND PROJECTFILE
  
 https://discord.gg/phoenixcheats
 
